@@ -12,4 +12,4 @@ Katharina Böhm ist eine österreichische Schauspielerin, die in der Schweiz geb
 * Der Alte
 * Die Chefin
 
-> "...."
+> Ein Zitat zur Hand
